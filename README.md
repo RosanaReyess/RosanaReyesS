@@ -27,7 +27,7 @@
 
 ## 🌱 Pasión por enseñar y aprender
 
-Soy también **trabajadora social** con espíritu creativo y pedagógico. Me interesa llevar la tecnología a lugares donde no suele llegar, y empoderar a niños y jóvenes para que se conviertan en creadores del futuro.
+Tengo un espíritu creativo y pedagógico. Me interesa llevar la tecnología a lugares donde no suele llegar, y empoderar a niños y jóvenes para que se conviertan en creadores del futuro.
 
 ---
 
