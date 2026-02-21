@@ -1,4 +1,4 @@
-# 👩‍💻 Hola, soy Rosana Reyes — Ingeniera de Software & Creadora Multidisciplinaria 🌟
+# 👩‍💻 Hola, soy Rosana Reyes — Ingeniera de Software 🌟
 
 ¡Bienvenid@ a mi espacio en GitHub! Soy ingeniera de software egresada de la Universidad de Cartagena con una profunda vocación social y educativa. Combino la tecnología con el trabajo comunitario para transformar realidades a través del conocimiento.
 
